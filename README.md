@@ -1,0 +1,2 @@
+# Kando
+szeretem a sajtot
